@@ -1,0 +1,4 @@
+Singkatan
+=========
+
+Bahasa Inggris Gaul
